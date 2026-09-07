@@ -1,2 +1,2 @@
-# yuka_journy_
+# yuka_journey_
 NYC life, school and travel
